@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @ayeshaanjumabbasi
 - 👀 I’m interested in blogging for gender cause
 - 🌱 I’m currently a student.
-- 💞️ I’m looking to collaborate on social activities
 - 📫 How to reach me email: ayeshaanjumabbasi24@gmail.com
 
 <!---
